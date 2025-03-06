@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rathiajay2803@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1q_wMHdcaud2ewMUzBA7dNuZNVkZrFFn8/view?usp=drive_link](https://drive.google.com/file/d/1q_wMHdcaud2ewMUzBA7dNuZNVkZrFFn8/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1q_wMHdcaud2ewMUzBA7dNuZNVkZrFFn8/view?usp=drive_link)
 
 - ⚡ Fun fact **Cricket Nerd & loves tech deep dives!**
 
